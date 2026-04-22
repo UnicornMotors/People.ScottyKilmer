@@ -1,0 +1,1 @@
+- [3 Places Only Stupid People Buy Cars](https://youtu.be/cjL7I0p8KBs)
